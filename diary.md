@@ -18,7 +18,8 @@
 - 2025/5/19-10:32  
 <br>
 *****
-## <span style="color:pink">*5月20日...*</span>   
+
+## <span style="color:pink">*5月20日...*</span>      
 &nbsp;&nbsp;&nbsp;&nbsp;第一次对日期这种事情感兴趣...   
 但是....   
 ~~*我还是什么都做不好...*~~
@@ -33,10 +34,11 @@
 - 2025/5/20-23:56
 <br>
 *****
-## <span style="color:pink">*5月21日!*</span>   
+
+## <span style="color:pink">*5月21日!*</span>          
 &nbsp;&nbsp;&nbsp;&nbsp;来自<span style="color:pink">***mo***</span>的可爱小礼物w
 
-<img src="gift.png" style="width:128px">
+<img src="gift.png" style="width:128px"></img>
 
 www编写文档的时间mo就在向咱示范怎么爱一个人了呢...  
 &nbsp;&nbsp;&nbsp;&nbsp;真可爱呢w 要是有mo这样的小男友或者小女友    
